@@ -4,13 +4,13 @@ testME
 
 More to by me come
 
-and were still waiting
+and we're still waiting
 
-well what are you waiting for?
+wells what are you waiting for?
 
-waiting for you....
+waiting for you...
 
-my car to be fixed
+my car by me to be fixed
 
 is it fixed?
 
